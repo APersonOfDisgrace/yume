@@ -3,7 +3,8 @@
                   |introvert, INTP-T, dark academia| i love bsd, gachi, soul eater| 
                             they/them, she/her prefered he/him | MINOR!
                 i like arctic monkeys, the vorgs (listen to them, REALLY COOL SONGS!!)
-                
+                     |i am rlly shy and shit so if u see c+h, int, w2i pls do it|
+                                     
                                     rareships: maybe, maybe not 
                      BSD: atsugin, chusano, chuaku, margaret x nataniel
           SOULEATER: soulkid, crona x soul, kim x jackie tsuliz (not much of an rareship but eh.)
